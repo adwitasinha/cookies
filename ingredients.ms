@@ -1,1 +1,1 @@
-Need flour, butter, sugar, vanilla-extract, milk, eggs, chocolate chips
+You will need flour, butter, sugar, vanilla-extract, milk, eggs, chocolate chips
